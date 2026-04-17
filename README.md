@@ -25,6 +25,6 @@ Soy un perfil técnico con amplia experiencia en terreno, especializado en el á
 Si buscas a alguien que sepa cómo funciona la tecnología desde la base y cómo gestionarla a gran escala, hablemos:
 
 * 📧 **Email:** [spicewolft@gmail.com](mailto:spicewolft@gmail.com)
-* 💼 **LinkedIn:** +
+
 
 ---
